@@ -1,1 +1,1 @@
-once a upon time there lived mastr named Jack. One day Jack was walking in a jungle and he found a bear. He then take bear and go tohis home.
+once a upon time there lived mastr named Jack. One day Jack was walking in a jungle and he found a bear. He then take bear and go to his home.His house was at end of the forest. With him his cook was also there.
